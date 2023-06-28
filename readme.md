@@ -17,4 +17,4 @@ A4. I like arts and crafts, but I am not very good at them. I really love listen
 
 Q5. If you could be any animal, what would you be and why?
 
-A5.
+A5. I would be a Pug! because they are the perfect companion animals and I hate being alone. 
