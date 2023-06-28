@@ -13,8 +13,8 @@ A3. To travel to every country in the World!
 
 Q4. Would you prefer Art's & Crafts or playing /watching sports?
 
-A4.
+A4. I like arts and crafts, but I am not very good at them. I really love listening and playing music though! As far as sports, I love playing them, especially soccer and boxing, but watching them is not my favorite.
 
-Q5.
+Q5
 
 A5.
