@@ -9,9 +9,9 @@ A2. Aries, Libra, Taurus
 
 Q3. What is your dream travel destination?
 
-A3.
+A3. To travel to every country in the World!
 
-Q4.
+Q4. Would you prefer Art's & Crafts or playing /watching sports?
 
 A4.
 
