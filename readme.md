@@ -1,4 +1,4 @@
-# Interview with Lavender
+# Interview with Lavender and Taylor
 Q1. What's your Big 3?
 
 A1. Cancer, Capricorn, Virgo
