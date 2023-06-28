@@ -15,6 +15,6 @@ Q4. Would you prefer Art's & Crafts or playing /watching sports?
 
 A4. I like arts and crafts, but I am not very good at them. I really love listening and playing music though! As far as sports, I love playing them, especially soccer and boxing, but watching them is not my favorite.
 
-Q5. If you could be an
+Q5. If you could be any animal, what would you be and why?
 
 A5.
